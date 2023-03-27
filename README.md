@@ -1,4 +1,4 @@
-### ⚡ Hi there 👋
+### ⚡ Hi there, i'm [Bezouro](https://bezouro.com.br) 👋
 
 I'm a passionate technology enthusiast with a keen interest in programming and an ongoing drive to learn more about it. When I'm not coding, you can find me playing video games or indulging in my other favorite hobbies - developing software, watching captivating series and discovering new movies.
 
